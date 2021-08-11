@@ -1,0 +1,6 @@
+- 👨🏻‍💻  About Me
+- 💡  I like to explore new technologies and develop software solutions and quick hacks.
+- 🌱  I'm Interested in Full Stack Developer, with demonstrated skills in designing structure, developing, and implementing applications and solu‑tions,.
+- ✍️  In my free time, I pursue Martial Arts and moovies and reading books.
+- 💬  Feel free to reach out to me for Any oportunity full time or part time.
+-     You can shoot me an email at n.habibkhoda@trengo.com! I'll try to respond as soon as I can.\
